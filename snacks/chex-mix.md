@@ -17,7 +17,7 @@
 ## Preparation ##
 
 1. Preheat oven to 250F.
-2. In large microwavable bowl, mix cereal, nuts, pretzels, and rye chips; set aside.
+2. In large bowl, mix cereal, nuts, pretzels, and rye chips; set aside.
 3. In small microwavable bowl, microwave butter uncovered on High until melted.
 4. Stir all seasonings into melted butter.
 5. Pour melted butter over cereal mixture, stirring until evenly coated.
